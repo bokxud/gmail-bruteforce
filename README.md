@@ -52,7 +52,7 @@ https://t.me/bdkr2
 
 ### Video Tutorial
 
-
+https://youtu.be/JLhG7-IYyqQ
 
 
 
